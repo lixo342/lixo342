@@ -5,3 +5,6 @@
 
 
 [click for pickle](https://images.squarespace-cdn.com/content/v1/59dbd779d2b857fa058a3eb9/1643585922903-9L7GMGHAN2HQA468DIE0/16_CL_FreshnessGif2_minis_0757_v1.gif?format=1500w)
+
+
+[click for pickle site](https://lixo342.github.io/lixo342.html)
